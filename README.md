@@ -1,0 +1,1 @@
+# trendyol-r-nekleme-entegrasyonu
